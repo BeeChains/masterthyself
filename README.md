@@ -1,2 +1,2 @@
-# MasterThyself | a Handshake TLD
+# MasterThyself | a Handshake top level domain
 MASTER THYSELF domain!
